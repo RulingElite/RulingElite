@@ -1,1 +1,1 @@
-- 👋 sup, im RulingElite ;_)
+- 👋 sup, im RulingElite ;)
